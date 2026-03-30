@@ -6,6 +6,10 @@
 <img width="600" height="701" alt="252_Sem_Titulo_20260324162855" src="https://github.com/user-attachments/assets/4ceaac19-7444-4201-8d20-7f920acd891f" />
 
 
-![ezgif com-crop ](https://github.com/user-attachments/assets/fbc98685-45fb-4424-aa62-bcce411e548d)
+![image0-2 (2)](https://github.com/user-attachments/assets/cff11912-397d-42cc-bf8a-cc36f8b3a2f7)
+
 
 ![](https://komarev.com/ghpvc/?username=your-github-rosesnnblood&label=blood+++&&color=722F37)
+
+![ezgif com-crop ](https://github.com/user-attachments/assets/fbc98685-45fb-4424-aa62-bcce411e548d)
+
